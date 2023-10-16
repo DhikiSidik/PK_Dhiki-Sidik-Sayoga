@@ -1,2 +1,2 @@
-Banyak yang belum selesai, karena kesibuka.
+Banyak yang belum selesai, karena kesibukan.
 Mohon maaf
